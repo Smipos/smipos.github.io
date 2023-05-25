@@ -1,1 +1,0 @@
-# smipos.github.io
